@@ -8,7 +8,16 @@ ha sido el ser humano quien ha visto el horizonte y a soñado llegar a el.
 su curiosidad lo ha llevado a atravesar aquel cielo que un dia fue custodiado por dioses y llegar a la luna.
 
 el hombre en su incanzable curiosidad logro volar, por aquellos tiempos de '1900'.
+
+
+
+# imagen de wright
+
 “Empezamos a interesarnos cuando éramos niños. Papá nos trajo a casa un pequeño juguete que, accionado por una goma elástica, se lanzaba al aire. Fabricamos varios ejemplares de este juguete que volaban con todo éxito”. – Orville Wright
+
+
+
+
 y si retrocedemos un poco mas en la historia encontramos otros grandes inventos con el mismo fin:' el hombre pueda surcar los cielos'.
 
 hoy en dia la magia de volar es solo uno de los tantos metodos de comunicacion y transporte con los que contamos.
